@@ -4,4 +4,3 @@
  
  How to reach me:
 - Discord: Kyösti#0844
-- Twitter: @Kysti92886670
