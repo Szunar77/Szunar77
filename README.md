@@ -1,6 +1,6 @@
-### Hi, I’m @Kyosti77
+### Hi, I’m @Szunar
  
  I’m just a random person on the internet.
  
  How to reach me:
-- Discord: Kyösti#0844
+- Discord: Szunar#6969
